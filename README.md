@@ -1,0 +1,24 @@
+# Spektrem – Shine
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Eyes, in the sky gazing far into
+the night,I raise my hand to the
+fire but it's no use,Cuz' you
+can't stop it from shining
+through,It's true,Baby let the
+light shine through,If you
+believe it's true,Baby won't you
+let the light shine through,For
+you !
+Eyes, in the sky gazing far into
+the night,I raise my hand to the
+fire but it's no use,Cuz' you
+can't stop it from shining
+through,It's true,Baby let the
+light shine through,If you
+believe it's true,Baby won't you
+let the light shine through,For
+you !
+```
